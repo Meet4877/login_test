@@ -7,7 +7,6 @@
 
 **Contact me:**
 - Mail: <a href="shingalameet4877@gmail.com">shingalameet4877@gmail.com</a>
-- 
 **Functions:-** 
 - idel <br>
 - sad <br>
